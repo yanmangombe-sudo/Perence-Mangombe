@@ -1,4 +1,4 @@
-Hi, I’m Perence Mangombe
+HI, I'M PERENCE MANGOMBE
 
 🎥 Multimedia Designer • Videographer • Photographer • Video Editor
 
